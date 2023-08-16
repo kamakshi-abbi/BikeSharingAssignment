@@ -48,7 +48,7 @@ for shared use to individuals on a short term basis for a price or free. Many bi
 
 
 ## Contact
-Created by [@githubusername] - feel free to contact me!
+Created by [@kamakshi-abbi] - feel free to contact me!
 
 
 <!-- Optional -->
